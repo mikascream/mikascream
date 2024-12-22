@@ -29,13 +29,16 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://adriansblinkiecollection.neocities.org/c43.gif)
 ![](https://adriansblinkiecollection.neocities.org/e116.gif)
 ![](https://adriansblinkiecollection.neocities.org/g95.gif)
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8fe17bd5-b71b-4336-9164-5d4f4ce21fda/dd5dg3w-d7233ba7-7e08-43c6-851f-6404a7cf2a30.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhmZTE3YmQ1LWI3MWItNDMzNi05MTY0LTVkNGY0Y2UyMWZkYVwvZGQ1ZGczdy1kNzIzM2JhNy03ZTA4LTQzYzYtODUxZi02NDA0YTdjZjJhMzAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.FEL2KCbhfNeBXB3oQoaw9yjvBWTK8852W6HPwo9EyTg)
 ![](https://64.media.tumblr.com/c0a83d4d7afd2bd83d57627f365559e7/dfbbd8c7c0b3410c-06/s250x400/9d578be0d366de8294ed7fa83b9a7eced07a6e5f.gifv)
 ![](https://64.media.tumblr.com/d052f12df7b2c97ce7082963a14439da/ce17caec7da4804e-f1/s250x400/83d6e260df7f3d9b23f89c39ccc6ff14cc5bb44b.gifv)
 ![](https://64.media.tumblr.com/6a00d4d9960b3f98830875ba87c1a466/c1af6f30d71a7f85-d9/s250x400/51ab1abc8ceb61180ae97616e01b765133112299.gifv)
 ![](https://64.media.tumblr.com/a023820c7f68063c3199c30df44f5821/b035b516dc88dd13-cf/s250x400/4fd16eacdbf55fb3f3b4f6017eaf56b48379724c.gifv)
 ![](https://64.media.tumblr.com/9e10211afd294224b4678952aafeb485/f01b417193c36424-07/s250x400/e1b515f000a0c9859c72f26e1786b51255262914.gifv)
 ![](https://64.media.tumblr.com/c37e985fa185c43df56a7ba066fb95e3/aafc9de618d36345-1f/s250x400/aae3f1e7094390cd9eec812100de2ed9dca464a5.gifv)
+![](https://64.media.tumblr.com/7288c929848491a37af56f346c854981/b035b516dc88dd13-69/s250x400/a1b2a3e71eafbf43eab28135a077fc94af871de5.gifv)
+![](https://adriansblinkiecollection.neocities.org/q26.gif)
+
+![](https://64.media.tumblr.com/bfc11316bc885d46d0ed19b06986b0b7/8f3b966c768a7a38-47/s400x600/6da1489adcc8d60b30902abeaea9039799dbf392.gifv)
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/d16.jpeg)
 ![](https://adriansblinkiecollection.neocities.org/stamps/e24.png)
@@ -61,17 +64,18 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://64.media.tumblr.com/3aac704903cd4055bd5cd8f8c8965564/4b36786e9171ecec-31/s100x200/b8c1a64ebc320b05d066f4dbd87fce4024502ed7.webp)
 ![](https://64.media.tumblr.com/415a91922a05049016d58a7106404970/c80e07d9272333a9-39/s100x200/b3b42241c05ed280c919bf425b91a6a2fbf008b2.pnj)
 ![](https://64.media.tumblr.com/22bc5c2da70c86b3ef09e00525cd8911/1236a896e868270f-bb/s100x200/462beb648829a74bc37d27e4a121ad10703bc95a.pnj)
-![](https://64.media.tumblr.com/b3c387650d8c66e62d87eaaadc502073/21317507f7352712-90/s100x200/0e66996acce2e367ddb860482501bddb56e7f263.webp)
-![](https://64.media.tumblr.com/05709a5f0eb47da30aee563c462a7338/21317507f7352712-4b/s100x200/7324b9651fc5c546142d791c39ff5201c274891b.webp)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8fe17bd5-b71b-4336-9164-5d4f4ce21fda/dd5dg3w-d7233ba7-7e08-43c6-851f-6404a7cf2a30.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhmZTE3YmQ1LWI3MWItNDMzNi05MTY0LTVkNGY0Y2UyMWZkYVwvZGQ1ZGczdy1kNzIzM2JhNy03ZTA4LTQzYzYtODUxZi02NDA0YTdjZjJhMzAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.FEL2KCbhfNeBXB3oQoaw9yjvBWTK8852W6HPwo9EyTg)
 
 ![](https://64.media.tumblr.com/31ef9de3e391453c74c0a168a38875b2/035ee49e290f7e20-2e/s400x600/1d56439010ed736df5adfcfc6759186c2adf1836.gifv)
 
 .....................
-![](https://64.media.tumblr.com/cca7c97ddc1f0c07cccf5da33a71ce9c/035ee49e290f7e20-9f/s100x200/f1f3f5bdf495847fbbf842bb67259b105a5a93d5.gifv)
-![](https://64.media.tumblr.com/e18d970ffa00046e8d93dd8728450ac8/266cae12e2818f3b-ad/s100x200/92f1e50fdcddec93e9ce88a7f1a8a4f3a9d51747.gifv)
+![](https://64.media.tumblr.com/b3c387650d8c66e62d87eaaadc502073/21317507f7352712-90/s100x200/0e66996acce2e367ddb860482501bddb56e7f263.webp)
+![](https://64.media.tumblr.com/05709a5f0eb47da30aee563c462a7338/21317507f7352712-4b/s100x200/7324b9651fc5c546142d791c39ff5201c274891b.webp)
 ...................
 
 ![](https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv)
+
+![](https://i.pinimg.com/736x/cc/f0/02/ccf00266905371483021215faee326b4.jpg)
 
 ![](https://64.media.tumblr.com/0ccc1261e7e10100b37c078b23ac5b86/b5784753c37f3c17-9b/s100x200/d2c70d5ba6a344f313a15f758d45c6e701cf2443.gifv)
 
