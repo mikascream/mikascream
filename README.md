@@ -4,12 +4,17 @@
 ![](https://64.media.tumblr.com/603a54c3f6cb2e12e88f9cd28a4ce819/c1af6f30d71a7f85-f3/s75x75_c1/0ab10b561e9b6163170777feeb50acc2287e8a15.gifv)
 ![](https://64.media.tumblr.com/9177c2a4e80b8158da81f9416f1739fe/c1af6f30d71a7f85-21/s75x75_c1/b1a55f34794f542042fe64c94b8351082b7605ae.gifv)
 
-Hello, to find more about me, go to my strawpage, pronouns page and rentry!
+Hello, to find more about me, go to my strawpage, pronouns page and rentry
 ![](https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv)
 
+![](https://64.media.tumblr.com/0ccc1261e7e10100b37c078b23ac5b86/b5784753c37f3c17-9b/s100x200/d2c70d5ba6a344f313a15f758d45c6e701cf2443.gifv)
+
+............
 ![](https://64.media.tumblr.com/972b494fff1b675e01d61434b53e31c7/e8ca1c81101a018c-be/s500x750/c110766f71d9e16684ab2e22cedf366da9e50993.gifv)
+![](https://64.media.tumblr.com/67ddfc4182003580fd76259cf7f21c0d/281be6bcacc41dca-76/s250x400/dd188da6e309a81d25af0de8b9fbc6ef1ac28702.gifv)
 
 Im gonna assume youre from the silly pony game, so heres what you gotta know!!
+
 
 🟢/💬 = feel free to int!
 
@@ -75,12 +80,8 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 
 ![](https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv)
 
-![](https://i.pinimg.com/736x/cc/f0/02/ccf00266905371483021215faee326b4.jpg)
-
-![](https://64.media.tumblr.com/0ccc1261e7e10100b37c078b23ac5b86/b5784753c37f3c17-9b/s100x200/d2c70d5ba6a344f313a15f758d45c6e701cf2443.gifv)
-
 ![](https://64.media.tumblr.com/6bcb2057f3f3428ee3d91f0befa611f1/ae42927e441ffefb-e0/s250x400/92693a54b9c32ba02efe43730f78000fee741094.gifv)
-![](https://64.media.tumblr.com/67ddfc4182003580fd76259cf7f21c0d/281be6bcacc41dca-76/s250x400/dd188da6e309a81d25af0de8b9fbc6ef1ac28702.gifv)
+
 ![](https://64.media.tumblr.com/865e39203e0c54abc2d6ba716d729c84/c1af6f30d71a7f85-67/s100x200/f90ebc971f56db5e8db8b2b77d9568412ee8f2d9.gifv)
 
 
