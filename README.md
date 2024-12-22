@@ -10,7 +10,7 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 
 🎭 = roleplaying (i dont really use this one)
 
-🌙 = on/off probably busy with something so sorry if i dont answer! (w2i)
+🌙 = on/off probably offtab so sorry if i dont answer! (w2i)
 
 ⛔ = very busy or not in the mood to talk (w2i is okay!)
 
