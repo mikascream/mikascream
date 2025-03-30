@@ -7,11 +7,11 @@
 Hello, to find more about me, go to my strawpage, pronouns page and rentry
 ![](https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv)
 
-![](https://64.media.tumblr.com/0ccc1261e7e10100b37c078b23ac5b86/b5784753c37f3c17-9b/s100x200/d2c70d5ba6a344f313a15f758d45c6e701cf2443.gifv)
+
 
 ............
 ![](https://64.media.tumblr.com/972b494fff1b675e01d61434b53e31c7/e8ca1c81101a018c-be/s500x750/c110766f71d9e16684ab2e22cedf366da9e50993.gifv)
-![](https://64.media.tumblr.com/67ddfc4182003580fd76259cf7f21c0d/281be6bcacc41dca-76/s250x400/dd188da6e309a81d25af0de8b9fbc6ef1ac28702.gifv)
+
 
 Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 
