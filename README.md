@@ -1,9 +1,5 @@
 # ![welcome](https://dl.glitter-graphics.com/pub/1694/1694466sa96a1sr3b.png)
 
-![](https://64.media.tumblr.com/df3df9845f8b376fcb77b611313059b6/c1af6f30d71a7f85-29/s75x75_c1/b0b95519123c1e6954fc0c7e6965aa281157e8aa.png)
-![](https://64.media.tumblr.com/603a54c3f6cb2e12e88f9cd28a4ce819/c1af6f30d71a7f85-f3/s75x75_c1/0ab10b561e9b6163170777feeb50acc2287e8a15.gifv)
-![](https://64.media.tumblr.com/9177c2a4e80b8158da81f9416f1739fe/c1af6f30d71a7f85-21/s75x75_c1/b1a55f34794f542042fe64c94b8351082b7605ae.gifv)
-
 Hello, to find more about me, go to my strawpage, pronouns page and rentry
 ![](https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv)
 
