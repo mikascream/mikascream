@@ -1,5 +1,7 @@
 # ![welcome](https://dl.glitter-graphics.com/pub/1694/1694466sa96a1sr3b.png) ![](https://64.media.tumblr.com/962250a010c481c8788700dd519c694f/75653e2d70049c8f-8e/s250x400/73f196eead060a1d561d15f9be51cb3dbb2a225a.pnj)
 
+
+
 Hello, to find more about me, go to my strawpage, pronouns page and rentry
 ![](https://64.media.tumblr.com/be7afb7168ecc219bf552f80ce0eba76/ee643efaa86f6169-5b/s75x75_c1/efb0d77f9c298eec158dec6a720ba83e7b99184b.gifv)
 
@@ -8,6 +10,7 @@ Hello, to find more about me, go to my strawpage, pronouns page and rentry
 ............
 ![](https://64.media.tumblr.com/972b494fff1b675e01d61434b53e31c7/e8ca1c81101a018c-be/s500x750/c110766f71d9e16684ab2e22cedf366da9e50993.gifv)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qgeleno55lv2ick3a624bjqxzq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0f0c5f&interchange=false&profanity=false&bar_color=e84fb8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 
@@ -42,9 +45,6 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://64.media.tumblr.com/f59ad3cdfd02eb6ea68f0d276411215b/7d01320e1eb69d85-b3/s250x400/9782ca5ba66dd84f0784498b37c5844644eca074.gifv)
 ![](https://64.media.tumblr.com/1f39b7768c13c85a4e38d190d6e5b260/c4321a96434ec589-a8/s250x400/28cf6558f90bd79e91e4e18785324ee520c676ab.gifv)
 
-![](https://64.media.tumblr.com/b6a15d089664e7a51387a8d685d715ad/c6ef24c8ad0a6993-ba/s250x400/628e0d3f6f092708d65446855302efd9af25b026.gifv)
-
-![](https://64.media.tumblr.com/bfc11316bc885d46d0ed19b06986b0b7/8f3b966c768a7a38-47/s400x600/6da1489adcc8d60b30902abeaea9039799dbf392.gifv)
 
 ![](https://64.media.tumblr.com/9c6290e18e5289318a486383366315a3/a152437fa155109c-d6/s100x200/3e11574b19a0d7745c985b638d5c6c807a289256.pnj)
 ![](https://adriansblinkiecollection.neocities.org/stamps/d16.jpeg)
