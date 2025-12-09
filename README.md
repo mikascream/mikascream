@@ -44,6 +44,8 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://64.media.tumblr.com/130bd308ff74a1e396c157397703190a/18d045b35d179237-62/s250x400/c327ea38c802270865bd3ecaa6d077cf1152a0db.gifv)
 ![](https://64.media.tumblr.com/f59ad3cdfd02eb6ea68f0d276411215b/7d01320e1eb69d85-b3/s250x400/9782ca5ba66dd84f0784498b37c5844644eca074.gifv)
 ![](https://64.media.tumblr.com/1f39b7768c13c85a4e38d190d6e5b260/c4321a96434ec589-a8/s250x400/28cf6558f90bd79e91e4e18785324ee520c676ab.gifv)
+![](https://64.media.tumblr.com/68275216516c9ac73fb4a0e8f87b5a29/4522079054d897c2-46/s1280x1920/e59192128cd89cc0f3aa85ec3557c3ecb5182f20.gifv)
+![](https://64.media.tumblr.com/eea32fe0c686ff7dc482b4b4dda104e9/530aa6b7862e8327-7d/s1280x1920/8f7f73f6ff5d1a27ef6c84d4acd6bfa73df3dd7e.gifv)
 
 
 ![](https://64.media.tumblr.com/9c6290e18e5289318a486383366315a3/a152437fa155109c-d6/s100x200/3e11574b19a0d7745c985b638d5c6c807a289256.pnj)
@@ -106,6 +108,8 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://64.media.tumblr.com/de519afce99e1d8b04c1c4f880715ee4/6ad3a0c9732904b2-75/s250x400/07921c1df55e4de58a671df04adece8bdf4d1623.gifv)
 ![](https://64.media.tumblr.com/42fd87191039c76e06f0d669f2e1589e/e1764aaf97ff8d81-10/s250x400/28c3088a64e41e3ea4acff272b423f85744b0b24.pnj)
 ![](https://64.media.tumblr.com/009fbc9b507b15239a613914aa05f66c/7d01320e1eb69d85-e0/s250x400/404182a52ef5e414000d6dcf59190d6a1c8efd7a.gifv)
+![](https://64.media.tumblr.com/b3c387650d8c66e62d87eaaadc502073/21317507f7352712-90/s100x200/0e66996acce2e367ddb860482501bddb56e7f263.webp)
+![](https://64.media.tumblr.com/05709a5f0eb47da30aee563c462a7338/21317507f7352712-4b/s100x200/7324b9651fc5c546142d791c39ff5201c274891b.webp)
 ![](https://64.media.tumblr.com/5005a388398e814f4ce1ffe3d92596d7/a1152e1260bbb1dc-c6/s100x200/cf65b8132dae93f0ffed25eb8c6ce3a091a6639a.gifv)
 ![](https://64.media.tumblr.com/afb9d09b2f17e0545207dbea4b1b3e42/ac4089a406d8046b-71/s100x200/da7b8684dadc3335627853be57e07824ab9980f4.gifv)
 ![](https://64.media.tumblr.com/72ba16e0f2db5a08b005f9875f7864fa/ab6aea802fa22535-e6/s100x200/fe4113fecfede111266b53f970c16c5547f12ac9.pnj)
@@ -113,14 +117,14 @@ Im gonna assume youre from the silly pony game, so heres what you gotta know!!
 ![](https://64.media.tumblr.com/0f9cae316534ef9f4591028751a52131/f2ecde4a8441d6d3-37/s100x200/b660ba5ee22fd797689ea781b3c2342ccc470298.pnj)
 ![](https://64.media.tumblr.com/252532f3162414b9e1cb1e90ef9128b1/b31d0a9ab31ddd2c-9c/s250x400/2ac74fd7494dd263c89c5066083a1fad825ed815.gifv)
 ![](https://64.media.tumblr.com/64432ae01b70458b2c4e3aaf878c1498/ca97eef3152f39fb-90/s100x200/7c46949dd618912c15a39b2384d954c6c8cd385e.pnj)
+![](https://64.media.tumblr.com/c04dee6db725300ebe26b9a96461c4a4/58c20a395f24fb3b-49/s250x400/75c340aacdfe7add1220b8b064e4b627ff98b03c.gifv)
 
 ![](https://64.media.tumblr.com/c73adfbdc11d3381ad72d0256602d8f7/702c0e43087e9c39-51/s250x400/f2fd76d0fbe8d8fbc1e7e67d4bb0cde920708afb.gifv)
 
 ![](https://64.media.tumblr.com/31ef9de3e391453c74c0a168a38875b2/035ee49e290f7e20-2e/s400x600/1d56439010ed736df5adfcfc6759186c2adf1836.gifv)
 
 .....................
-![](https://64.media.tumblr.com/b3c387650d8c66e62d87eaaadc502073/21317507f7352712-90/s100x200/0e66996acce2e367ddb860482501bddb56e7f263.webp)
-![](https://64.media.tumblr.com/05709a5f0eb47da30aee563c462a7338/21317507f7352712-4b/s100x200/7324b9651fc5c546142d791c39ff5201c274891b.webp)
+
 ...................
 
 ![](https://64.media.tumblr.com/a612a4e80b21a4bad96cb1140d4a83e5/266cae12e2818f3b-07/s400x600/c8958e459df49fc9962a1d8f49daf30ee12d362c.gifv)
